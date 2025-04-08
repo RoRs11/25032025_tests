@@ -3,7 +3,7 @@
 #1 Bortkevičs Gustavs
 
 #2 Briģis Roberts
-
+222**2/2025
 #3 Ceriņš Jānis
 1 + 1 =2
 #4 Junkers Krišjānis
